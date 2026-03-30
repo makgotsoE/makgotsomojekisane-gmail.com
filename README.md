@@ -1,1 +1,1 @@
-
+I am a newly qualified electrician with a completed trade. I have hands-on experience assisting senior electricians with electrical Installations, fault finding, maintenance and adherence to safety. I am highly trainable, disciplined and able to work both independently and within a team. 
